@@ -5,8 +5,9 @@
   
   > [!CAUTION]
 > HE....HIM C + H freely if alone... \
-> please whisper to start convos and then move them to local chat if you want \
+> please whisper to start convos then move them to local chat if you want \
 > most of the time when im on im focusing on work so replies will be late \
+> pls be blunt to me and whisper if im being too much ok. \
 > discord is galahyde but only add me if we actually talked lool
 >  > **INTERESTS**
 > i loove ultrakill, outlast trials, 17776, eddsworld, \
